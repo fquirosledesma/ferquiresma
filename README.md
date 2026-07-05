@@ -1,4 +1,4 @@
-# Hey, I'm Fer 👋
+# Hey, I'm Fernando 🧙‍♂️
 
 AI Solution Architect exploring the reality of magic, the fantasy of AI, and the systems behind both.
 
