@@ -1,4 +1,4 @@
-# Hey, I'm Fernando 🧙‍♂️
+# Hey, I'm Fer the Hermit 🧙‍♂️
 
 AI Solution Architect exploring the reality of magic, the fantasy of AI, and the systems behind both.
 
