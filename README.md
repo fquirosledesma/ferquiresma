@@ -1,4 +1,4 @@
-# Hola, Soy Fernando — gaucho hechicero de sistemas 🧉✨
+# Hola, Soy Fernando — Gaucho Hechicero de sistemas 🧉✨
 
 Arquitecto de soluciones IA, argentino de raíz y explorador de sistemas complejos.
 
